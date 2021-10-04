@@ -13,6 +13,7 @@ Fun fact: she majored in mathematics and philosophy!
 
 
 
-Neev Mittal Comments
+Neev Mittal Comments:
+
 It was so interesting to read about this!  It is really special how there were so many people 
 behind the first moon landing that we don't hear or know about. It is all the more impressive that she was able to pull it off with such primitive technology!
