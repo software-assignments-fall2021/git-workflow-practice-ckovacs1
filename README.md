@@ -1,5 +1,5 @@
 # Git Practice
-Christian Kovacs Git Practice
+Christian Kovacs Git Practice Assignment 
 
 Interesting Link: https://interestingengineering.com/margaret-hamilton-software-engineer-who-saved-the-moon-landing
 
